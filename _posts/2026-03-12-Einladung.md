@@ -1,7 +1,7 @@
 ---
 ---
 
-Freut Euch auf ein fantastisches Wiedersehen mit aleten Weggefährten.
+Freut Euch auf ein fantastisches Wiedersehen mit alten Weggefährten.
 
 Kommt bei Wurst und Bier zusammen und sprecht über "alte Zeiten".
 
