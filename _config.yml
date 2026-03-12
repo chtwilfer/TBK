@@ -10,7 +10,7 @@
 ############################
 
 # Name of website
-title: Treffen TBK
+title: TBK
 
 # Your name to show in the footer
 author: Christian Twilfer
@@ -20,10 +20,6 @@ author: Christian Twilfer
 ###############################################
 
 navbar-links:
-  About Me: "aboutme"
-  Resources:
-    - Beautiful Jekyll: "https://beautifuljekyll.com"
-    - Learn markdown: "https://www.markdowntutorial.com/"
   Author's home: "https://chtwilfer.github.io"
 
 ################
