@@ -1,22 +1,19 @@
----
----
+**Einladung zum Ehemaligentreffen der Bundeswehrangehörigen**
 
-Freut Euch auf ein fantastisches Wiedersehen mit alten Weggefährten.
+Liebe Kameradinnen und Kameraden,
 
-Kommt bei Wurst und Bier zusammen und sprecht über "alte Zeiten".
+wir laden euch herzlich zu unserem diesjährigen Ehemaligentreffen ein!
+Es ist wieder Zeit, alte Freundschaften aufzufrischen, gemeinsam zu lachen, Erinnerungen zu teilen und neuen Geschichten Platz zu geben.
 
+Wann: Samstag, 17. Oktober 2026
+Wo: Mühlenhof Rheine, 
+Einlass: ab 16:00 Uhr – Beginn: 17:00 Uhr
 
-**Die Party steigt!**
+Für das leibliche Wohl ist wie immer gesorgt. Neben einem gemütlichen Beisammensein erwartet euch ein abwechslungsreiches Programm mit Gelegenheit zum Austausch und Erinnern.
 
-**Wann**: 17. Oktober 2026 (Samstag)
+Alle weiteren Informationen – inklusive Flyer zum Download – findest du demnächst hier auf dieser Seite.
 
-**Uhrzeit**: ab 16 Uhr ist Einlass
+Wir freuen uns auf ein Wiedersehen in kameradschaftlicher Runde!
 
-**Tickets**: 25,00 € pro Person
-
-
-Wir freuen uns auf Euch.
-
-
-
-HIER FLYER als BILD einfügen
+Mit besten Grüßen,
+**Das Organisationsteam des Ehemaligentreffens**
