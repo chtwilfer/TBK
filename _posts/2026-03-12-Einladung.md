@@ -1,4 +1,4 @@
-**Einladung zum Ehemaligentreffen der Bundeswehrangehörigen**
+**Einladung zum Ehemaligentreffen**
 
 Liebe Kameradinnen und Kameraden,
 
